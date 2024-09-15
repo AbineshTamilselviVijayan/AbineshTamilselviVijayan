@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @AbineshTamilselviVijayan
-- 👀 I’m interested in this universe
-- 🌱 I’m currently learning ... spring boot
-- 💞️ I’m looking to collaborate on ... software developers
+- 👀 I’m interested in conquering this universe
+- 🌱 I’m currently into big B**bs & Thick t***hs.
+- 💞️ I’m looking to collaborate with ... software developers
 - 📫 Reach me ... in abineshh28@gmail.com
 
 <!---
