@@ -27,7 +27,3 @@
 - 💼 **LinkedIn:** [Coming Soon 🚀]  
 
 ⚡ **Fun Fact:** _"I believe every problem has a solution—sometimes, it's just hidden behind a stack trace!"_  
-
----
-
-This keeps it clean, professional, and engaging while highlighting your expertise! 🚀 Let me know if you want any changes. 😃
